@@ -1,7 +1,5 @@
-Olá eu sou Luiz Tharik :D 😁😁
-
+Olá eu sou Luiz Tharik :D �
 -Hoje eu sou um estudando da Trybe de Desenvenvolvedor de software web 😁
-
 -Estudante de Engenharia de sofware 📖📕
 
 <div align="center">
