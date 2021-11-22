@@ -1,10 +1,10 @@
-### Pl[a eu sou Luiz Tharik :D
+### Pl[a eu sou Luiz Tharik :D 😁😁
 
--Hoje eu sou um estudando da Trybe de Desenvenvolvedor de software web 
+-Hoje eu sou um estudando da Trybe de Desenvenvolvedor de software web 😁
 
--Estudante de Engenharia de sofware
+-Estudante de Engenharia de sofware 📖📕
  
--Contato no whatsapp +55(31)98236-7329 / Email: Thariklz19@gmail.com
+-Contato no whatsapp +55(31)98236-7329 / Email: Thariklz19@gmail.com 📩
   
 -Pronomes: ele/dele 
 
