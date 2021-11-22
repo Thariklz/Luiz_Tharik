@@ -1,4 +1,4 @@
-### Hi There :D
+### Pl[a eu sou Luiz Tharik :D
 
 -Hoje eu sou um estudando da Trybe de Desenvenvolvedor de software web 
 
