@@ -1,6 +1,6 @@
 Olá eu sou Luiz Tharik :D
 
--Hoje eu sou um estudando da Trybe de Desenvenvolvedor de software web 😁
+-Hoje eu sou desenvolvedor front-end 😁
 
 -Estudante de Engenharia de sofware 📖📕
 
